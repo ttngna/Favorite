@@ -10,6 +10,7 @@ I enjoy watching movies at AMC theatres for the immersive experience that is off
 
 # These are some of my favorite AMC movies and highly recommend watching: 
 <c>
+
 ![oppen](https://github.com/ttngna/Favorite/assets/142946998/4175d88c-539f-4d27-9007-4fe9b2b9da9c)
 
 ![turtle](https://github.com/ttngna/Favorite/assets/142946998/e8ed41ab-a49b-44a4-809b-131e2a8d7902)
