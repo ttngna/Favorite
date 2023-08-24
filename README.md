@@ -1,4 +1,4 @@
 # My Favorite AMC Movies
 
 
-These are some of my favorite movies seen at AMC. 
+These are some of my favorite movies seen at AMC theatres. 
