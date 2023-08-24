@@ -8,7 +8,7 @@ I enjoy watching movies at AMC theatres for the immersive experience that is off
 
 1. **I like the entertainment** - It's a temporary escape from *reality*. I feel immersed in the different worlds, stories, and characters!
    
-2. **I get to feel all types of emotions** - :laughing: :sob: 😱: :astonished:  Movies have a way of envoking a range of emotions from me, from laughing to crying, there is a sense of connection and empathy with the characters and their experiences on screen.
+2. **I get to feel all types of emotions** - 😆: 😭: 😱: 😲:  Movies have a way of envoking a range of emotions from me, from laughing to crying, there is a sense of connection and empathy with the characters and their experiences on screen.
    
 3. **I get to share the experience** - I enjoy watching movies with my partner, and we have the opportunity to have discussions about how we experiences the movie we watched. We bond over our reactions and our interpretations of the movie we just watched.
 
