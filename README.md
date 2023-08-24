@@ -1,5 +1,5 @@
-<div align="center">
-![amc](https://github.com/ttngna/Favorite/assets/142946998/ec87c0e6-c113-4fcd-b1c4-55650aa09e90) </div>
+
+<div align="center">![amc](https://github.com/ttngna/Favorite/assets/142946998/ec87c0e6-c113-4fcd-b1c4-55650aa09e90)</div>
 
 # FAVORITE MOVIES AT AMC THEATRES
 
