@@ -1,3 +1,6 @@
+
+![amc](https://github.com/ttngna/Favorite/assets/142946998/ec87c0e6-c113-4fcd-b1c4-55650aa09e90)
+
 # FAVORITE MOVIES AT AMC THEATRES
 
 I enjoy watching movies at AMC theatres for the immersive experience that is offered. The IMAX and Dolby experience has comfortable seating, high-quality sound systems, and large cinematic screens. AMC theatres offer a variety of movies, convenient locations, and many show times available to choose from. 
