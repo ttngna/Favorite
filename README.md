@@ -4,6 +4,7 @@ I enjoy watching movies at AMC theatres for the immersive experience that is off
 
 # Here are 3 reasons why I enjoy going to AMC theatres:
 
+
 1. **I like the entertainment** - It's a temporary escape from *reality*. I feel immersed in the different worlds, stories, and characters!
    
 2. **I get to feel all types of emotions** - Movies have a way of envoking a range of emotions from me, from laughing to crying, there is a sense of connection and empathy with the characters and their experiences on screen.
