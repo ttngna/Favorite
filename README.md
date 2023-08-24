@@ -2,7 +2,7 @@
 
 I enjoy watching movies at AMC theatres for the immersive experience that is offered. The IMAX and Dolby experience has comfortable seating, high-quality sound systems, and large cinematic screens. AMC theatres offer a variety of movies, convenient locations, and many show times available to choose from. 
 
-# Here are 3 reasons why I enjoy going to AMC theatres to watch movies:
+# Here are 3 reasons why I enjoy going to AMC theatres:
 
 1. **I like the entertainment** - It's a temporary escape from *reality*. I feel immersed in the different worlds, stories, and characters!
    
