@@ -25,4 +25,5 @@ I enjoy watching movies at AMC theatres for the immersive experience that is off
 ![oppen](https://github.com/ttngna/Favorite/assets/142946998/759a676c-9950-411d-a8c2-b5bc3099709a)
 ![turtle](https://github.com/ttngna/Favorite/assets/142946998/e8ed41ab-a49b-44a4-809b-131e2a8d7902)
 ![bullet](https://github.com/ttngna/Favorite/assets/142946998/9b87d4a4-3e10-4e8b-aff2-fed4a2a2b6fd)
+![popcorn 3](https://github.com/ttngna/Favorite/assets/143032378/6129c5bb-1042-4ddc-ba02-e94fbcc030fb)
 
