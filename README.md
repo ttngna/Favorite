@@ -16,8 +16,8 @@ I enjoy watching movies at AMC theatres for the immersive experience that is off
 2. **I get to feel all types of emotions** - 😆 😭 😱 😲  Movies have a way of envoking a range of emotions from me, from laughing to crying, there is a sense of connection and empathy with the characters and their experiences on screen.
    
 3. **I get to share the experience** - I enjoy watching movies with my partner. We like to get popocorn and drinks. Afterward, we take the opportunity to discuss how we experienced the movie - sharing our reactions and interpretations. It's a special type of bonding for us.
-
-4. **I love the snacks** they have at the AMC theatres. 
+   
+4. **I love the snacks** they have at the AMC theatres.
 
 ## Favorite AMC movies and highly recommend watching: 
 
